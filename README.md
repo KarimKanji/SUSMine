@@ -1,2 +1,2 @@
 # SUSMine
-Best thing ever
+Best thing never
